@@ -1,10 +1,11 @@
 # Self Esteem
+[[Psycho-cyb ernetics]]
 Observe the kind of issues involved in living consciously versus living unconsciously:
 - thinking, even when thinking s difficult, versus nonthinking
 - awareness
 - clarity, whether or not it comes easily, versus obscurity or vagueness
 - respect for reality, whether pleasant or painful, versus avoidance of reality
-- respect for truth versus rejection of truth
+- respect for truth versus rejection of truth 
 - independence vs dependence
 - active orientation vs passive orientation
 - willingness to take appropriate risks vs unwillingness
@@ -70,3 +71,4 @@ Our self-esteem is not a function of our physical attractiveness. Rather our wil
 
 ### homework
 Sometimes, looking back over my life, I can hardly believe that at one time I was too afraid to make the move I wanted to. There are a lot of cute girls that I want to talk to but for some reason I am scared of talking to them. One time I was so scared of looking into a girl's eyes that I tried to act cool and acted like I didn't care. I didn't accept the fact that I'm not a smooth dude and everything kinda comes awakwardly. I am very scared of confrontation. I can always muster up the courage to 
+
