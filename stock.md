@@ -22,3 +22,4 @@ Investments in foreign markets are exposed to fluctuations in foreign exchange r
 
 ### Style
 Stocks may be classified by value, blend, or growth. Growth stocks are companies that grow their profits at a very fast rate and are expected to grow at an increasing rate. Value stocks trade at deep discount relative to their intrinsic value. 
+

@@ -38,11 +38,13 @@ When you start feeling generally tired, take a few days off. Then go back at it 
 
 [[habit]]
 
+[[learn]]
 [[consciousness]]
-
+[[flow]]
 Getting laid makes you look and feel better, which gets you laid > repeat. 
 
 [[sleep]]
+
 
 Visualize yourself 
 
@@ -76,7 +78,9 @@ Give your best effort in everything no matter how menial the task.
 [food]: food.md "Food"
 [people]: people.md "People"
 [habit]: habit.md "Habit"
+[learn]: learn.md "How to learn"
 [consciousness]: consciousness.md "Consciousness"
+[flow]: flow.md "Flow"
 [sleep]: sleep.md "Sleep"
 [mindset]: mindset.md "Mindset"
 [porn]: porn.md "Porn"

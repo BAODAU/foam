@@ -29,4 +29,3 @@ form the habit of reacting aggresively and positively toward threats and problem
 
 > The measure of mental health is the disposition to find good everywhere. 
 
-

@@ -1,0 +1,2 @@
+# A guide to the good life
+Suppose you can identify your grand goal of living and you an explain why this goal is worth attaining. The stoics realized that a life plagued with negative emotions - anger, anxiety, fear, grief, and envy will not be a good life. 

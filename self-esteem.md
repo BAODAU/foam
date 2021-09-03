@@ -25,26 +25,26 @@ Thinking independently - about our work, our relationship, the values that will 
 ## There might be some homework to do
 
 ### Meditate on three areas with subpar consciousness
-Meditate on what seems to difficult about staying in high-level mental focus in these areas. For each of these areas, write **The hard thing about staying fully conscious here is** as rapidly as possible, without censoring yourself. write 10 endings
+- Meditate on what seems to difficult about staying in high-level mental focus in these areas. For each of these areas, write **The hard thing about staying fully conscious here is** as rapidly as possible, without censoring yourself. write 10 endings
 
-Then do the same for **the good thing about not being fully conscious here ** . 
+- Then do the same for **the good thing about not being fully conscious here** . 
 
-Then follow with **if i were to stay fully conscious here**
+- Then follow with **if i were to stay fully conscious here**
 
-**Give some thoughts to tomorrow. And the next seven days of your life.** How can you apply these ideas to your daily concerns. 
+- **Give some thoughts to tomorrow. And the next seven days of your life.** How can you apply these ideas to your daily concerns. 
 
 
 #### personal belongings
-The hard thing about staying fully conscioush here is that the worst case is I lose these things which I can easily buy back or get back. If I lose my stuff I can just spend some time looking for it and I will eventually get it. It's not like I have lost the most important stuff in my life anyway. The other hard thing about staying fully conscious on my personal belonging is the other attention-grabbing activities. If I get home the first thing I want is to go on a mindless scroll. So I have to throw stuff away as fast as possible in order to get comfy and start relaxing. I could say that this comes from my dopamine receptors being fucked beyond repair. Losing stuff and not finding them in time might fuck my schedule up and I have to do things less efficiently. 
+The hard thing about staying fully conscious here is that the worst case is I lose these things which I can easily buy back or get back. If I lose my stuff I can just spend some time looking for it and I will eventually get it. It's not like I have lost the most important stuff in my life anyway. The other hard thing about staying fully conscious on my personal belonging is the other attention-grabbing activities. If I get home the first thing I want is to go on a mindless scroll. So I have to throw stuff away as fast as possible in order to get comfy and start relaxing. I could say that this comes from my dopamine receptors being fucked beyond repair. Losing stuff and not finding them in time might fuck my schedule up and I have to do things less efficiently. 
 
 The good thing about not being fully conscious here is that I trained my mind to be able to focus on more important issues at hand faster. If I don't pay enough attention to my belongings, as soon as I get down to work, I will work. 
 
 If I were to stay fully conscious here, I can reduce a lot of time spent looking for stuff. I can spend more time being productive instead of being stressed out about little details. I might also get a sense of control from being able to manage the little details of my life. A better sense of control might enable me to do more important things. 
 
-#### Mindless media consumption
-The hard thing about staying fully conscious when I am on my bed is that I will get a feeling of total relaxation whenever I am on my bed. If I'm too excited I will numb myself down with some porn so that I can be sedated in bed. If I'm bored I will watch stupid videos that help ease me into sleep. This mindless video watching/binging comes from, first my insatiable dopamine crave, second my piss poor habits. It's very hard when the surrounding environment have been fostering this kind of environment for years. 
+## Mindless media consumption
+- The hard thing about staying fully conscious when I am on my bed is that I will get a feeling of total relaxation whenever I am on my bed. If I'm too excited I will numb myself down with some porn so that I can be sedated in bed. If I'm bored I will watch stupid videos that help ease me into sleep. This mindless video watching/binging comes from, first my insatiable dopamine crave, second my piss poor habits. It's very hard when the surrounding environment have been fostering this kind of environment for years. 
 
-The good thing about mindless consumption is that I can use that to get closer to, or most of the time wayyy past my bedtime. I can sometimes come across interesting forums which would promote healthier lifestyle. 
+- The good thing about mindless consumption is that I can use that to get closer to, or most of the time wayyy past my bedtime. I can sometimes come across interesting forums which would promote healthier lifestyle. 
 
 If I were to stay fully conscious here, I will have to limit the cues to my media conscumption cravings. I should move all the electronics that I use for mindless consumption out of sight. Replacing them with stimulus for mindful consumption, i.e books, something else. Before that, I have to identify what are mindless consumption distractions so that I will not replace one vice with another. I gotta think for myself. 
 
@@ -72,3 +72,13 @@ Our self-esteem is not a function of our physical attractiveness. Rather our wil
 ### homework
 Sometimes, looking back over my life, I can hardly believe that at one time I was too afraid to make the move I wanted to. There are a lot of cute girls that I want to talk to but for some reason I am scared of talking to them. One time I was so scared of looking into a girl's eyes that I tried to act cool and acted like I didn't care. I didn't accept the fact that I'm not a smooth dude and everything kinda comes awakwardly. I am very scared of confrontation. I can always muster up the courage to 
 
+### Fuck you mom
+Seriously fuck you and your dysfunctional family. When you pretend to love me I can't feel it. You are only using me as a prop for your incessant flexing with your peasant friends. You are a spineless pathetic human being who didn't once stand up for herself that you had to resort to all kind of fucked up manipulation just to get what you want. Look at your fucking career mom. You making $200 being able-bodied over your 30 year career. You go home lying down for an hour before taking shower and you stink anyway. You suck. You suck. You suck the joy out of your own life and others. But that's not the worst part of you. You make me feel like a fucking victim. I blame you for instilling slave mentality on me. I will grow out of it. 
+
+You emasculated me by making me unplug your stinky armpit. You are a fucking weirdo. It could have been our bond time but dude seriously get professional help. How do you even have the fucking audacity to bring up your trashed $200 salary like you are proud of it or some shit. You had a whole life figuring it out and you still ended up a fucking loser. 
+
+That's who you are mom. I will do everything I could so I won't be like you. I will do everything I could so your pathetic slave mentality won't be passed on to my offspring.
+
+I can't fucking respect you knowing you were neurotic as fuck. Your jokes have always been safe. You didn't do any fucked up shit to me, sure. But your gradual self-harm leaks off to every other aspect of your life. 
+
+You taught me to respect authority. Yet you don't respect yourself enough to become a better human being. You have beef with everyone. You don't believe in your ideals enough that you have to attack everyone else's to believe them. You are the Christianity's equivalent of human relationship. You are obnoxious, hiding behind a greater good facade to hide yourself. WHO THE FUCK ARE YOU WOMAN? HAVE YOU EVEN FOUND YOURSELF YET?

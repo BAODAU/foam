@@ -1,0 +1,4 @@
+# Mimetic theory - Rene Girard
+> God is the synthetic person of the whole nation. It is a sign of a nation's extinction when there begin to be gods in common. When there are gods in common, they die a long with the belief in them and with the nations themselves. The stronger the nation, the more particular its God. 
+
+Makar says he never met a godless person: 'A man cannot live without worshipping something; without worshipping he cannot bear the burden of himself. And that goes for every man. so that if a man rejects God, he will have to worship an idol that may be made of wood, gold or ideas. So those who think they don't need God are really just idol worshippers, and that's what we should call them.' Dostoyevsky 8/7/21, 
