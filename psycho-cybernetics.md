@@ -29,3 +29,16 @@ form the habit of reacting aggresively and positively toward threats and problem
 
 > The measure of mental health is the disposition to find good everywhere. 
 
+# The picture of success
+## Sense of direction
+We are engineered as goal-seeking mechanisms. We are built to conquer environment, solve problems, achieve goals, and we find no real satisfaction or hapiness in life without obstacles to conquer and goals to achievel. 
+
+## Understanding
+Doctors believe that 'confusion' is the basic element in neurosis. 
+> Noone reacts to 'things as they are,' but to his own mental images. 
+
+We create confusion 
+
+## Self-acceptance
+It means accepting and coming to terms with ourselves now with all our faults, weaknesses, shortcomings, errors, as well as our assets and strengths. Self-acceptance is easier if we realize that these negatives belong to us - they are not us. 
+
