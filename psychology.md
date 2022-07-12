@@ -1,5 +1,5 @@
 # Psychology
-
+[[What do people want?]]
 [[ego-is-the-enemy]]
 [[self-esteem]]
 ## Carl Jung
